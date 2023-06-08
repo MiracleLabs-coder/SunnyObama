@@ -7,4 +7,4 @@ Our team has been on the road of creating miracles and will eventually shock the
 🪩Telegram https://t.me/sunnyobamachannel
 🤖Twitter https://twitter.com/sunnyobamameme
 🌐Global Community https://t.me/sunnyobama  
-🇨🇳Chinese Commnunity https://t.me/sunnyCN
+🇨🇳Chinese Community https://t.me/sunnyCN
